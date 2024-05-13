@@ -10,3 +10,4 @@ ultilizo esse espaço para minha organização compartilhamentodos meus projetos
 
 
 curso alura
+![image](https://github.com/dudaa014/Maria-Eduarda/assets/169373825/0878f4e6-23f2-4ae3-acfb-7b7478e2c0d1)
